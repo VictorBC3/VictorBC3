@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @VictorBC3
+- I am hoping to learn
